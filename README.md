@@ -1,1 +1,2 @@
-# MyStreak
+# MyStreak Privacy Policy
+All Rights apply
